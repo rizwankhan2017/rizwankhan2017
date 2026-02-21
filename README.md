@@ -4,4 +4,4 @@ Currently, I work for Emirates Airlines as a check-in agent. My experience at Em
 Some Facts about me
 * I love playing sports, hiking, and calisthenics
 * One of my favorite things to do on a day off is walk around nyc and find a new place to eat.
-* Goal in 2025 is to land a job in tech and to learn how to do a handstand
+* Goal in 2026 is to land a job in tech and to learn how to do a handstand
